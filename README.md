@@ -2,8 +2,7 @@
 - 👀 I’m interested in developing IT recruitment skillset and gaining wisdom to bring quality into the hiring process
 - 🌱 I’m currently learning analytics (Skillbox.ru, data science) and starting to dive deeper into the systems administrator role for the recruitment need.
 - 💞️ I’m looking to build the network ;) 
-- 📫 How to reach me - simple: stellastelmah@outlook.com 
-- 😄
+- 😄 Iˇm an HR specialist, providing smooth work with HRMS, continuously developing and optimizing the processes and bringing better quality of the personnel data
 - ⚡  
 
 <!---
